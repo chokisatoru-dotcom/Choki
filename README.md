@@ -1,2 +1,0 @@
-# Choki
-im a begineer 
